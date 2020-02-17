@@ -1,0 +1,1 @@
+# Moscow-Olympiad-of-schoolchildren-in-computer-science
